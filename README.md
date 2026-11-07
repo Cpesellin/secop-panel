@@ -1,1 +1,1 @@
-Panel publicado automáticamente. No editar aquí: este repositorio se sobrescribe en cada publicación.
+Sitio retirado. El panel de VERA es de acceso privado y no se publica aqui.
